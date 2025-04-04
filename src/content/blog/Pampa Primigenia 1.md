@@ -71,3 +71,13 @@ Deberian seguirlo, ya sea que lo ataquen o no, van a seguirlo hasta Costa del pl
 ## Final
 llegaran por fin a Costa del plata casi pisando los talones del cultista. Veran a lo lejos, algunos arbustos, y luces, se acercaran. Veran que hay un altar gigantesco con los simbolos del circulos que vieron previamente, el altar esta hecho en madera pero con una piedra en el centro, mucha cantidad de sangre, antorchas, ven tambien algunas tinajas con lo que parece ser aceite, el mismo con el que mantienen las antorchas encendidas. Al menos 5 cultistas estan cerca del altar, 4 de ellos apoyando algunos cuencos de madera sobre la piedra, el 5to esta con sus manos apoyadas en la piedra, en el ven un tatuaje en su frente donde esta el simbolo simil pulpo con una estrella de fondo. Llevan en sus manos cuchillos casi tan largos como un facon pero en zigzag. Ven tambien algunos cadaveres cerca de ellos pero no estan seguros si son frescos o no. Tambien ven que la piedra esta emanando un brillo extraño y el cielo se esta poniendo negro...
 Aparece el hombre Negro?
+
+**Link de Pampa Primigenia**
+[Pagina de Instagram](https://www.instagram.com/primigenia_austral/?hl=es)
+
+**Donde comprar el manual en digital**
+[Tienda itch.io](https://primigenia-austral.itch.io/pampa-primigenia)
+
+**Tienda fisica**
+
+[The dungeon comics](https://thedungeon.empretienda.com.ar/rol/manuales-y-spellbooks/pampa-primigenia-pulp-austral-manual-de-rol)

@@ -114,3 +114,9 @@ La empresa detras de esto es Astrazeneca.Lo mandaron para limpiar todo y que no 
 opcional (solo y solo si no hay sensibilidades con respecto a los animales)
 21. Animal que atrae a la horda
 22. Hippie fumado
+
+**Link del juego original**
+[Berazategui Territorio Zombie](https://www.instagram.com/berazateguiterritoriozombie/)
+
+**Link al manual del juego**
+[Manual Berazategui Territorio Zombie](https://berazategui.gob.ar/cultura/images/pdf/Ediber/BTZ-juegoderol-WEB.pdf)
