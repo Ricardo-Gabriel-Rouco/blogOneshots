@@ -1,7 +1,7 @@
 ---
 title: 'Escobar zombie 1'
 description: 'Es un oneshot utilizando Berazategui Territorio Zombie pero ambientado en Escobar'
-pubDate: 'Abr 4 2025'
+pubDate: 'Apr 2 2025'
 heroImage: '/Zombie1.webp'
 ---
 # Escena 1

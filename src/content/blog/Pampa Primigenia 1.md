@@ -1,7 +1,7 @@
 ---
 title: 'Pampa Primigenia 1'
 description: 'Es un oneshot pensado para una juntada con amigos'
-pubDate: 'Abr 4 2025'
+pubDate: 'Apr 4 2025'
 heroImage: '/bigdreamer.webp'
 ---
 

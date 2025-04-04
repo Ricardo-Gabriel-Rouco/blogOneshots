@@ -1,7 +1,7 @@
 ---
 title: 'Escobar zombie 2'
 description: 'Es un borrador de un oneshot ambientado en Escobar, El sistema original es Berazategui Territorio Zombie'
-pubDate: 'Abr 4 2025'
+pubDate: 'Apr 3 2025'
 heroImage: '/zombie2.webp'
 ---
 
